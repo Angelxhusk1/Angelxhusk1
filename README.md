@@ -5,7 +5,7 @@
 
 - 📫 How to reach me ... Hcps-natalse@henricostudents.org
 - 😄 Pronouns:  she/her
-- ⚡ Fun fact: My fave charecter is angel and frank! And I'm bi
+- ⚡ Fun fact: My fav charecter is angel and frank! And I'm bi
 
 <!---
 Angelxhusk1/Angelxhusk1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
